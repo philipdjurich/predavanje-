@@ -1,0 +1,2 @@
+# predavanje-
+Statistika vježba
